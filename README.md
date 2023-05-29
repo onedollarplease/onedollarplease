@@ -2,7 +2,7 @@
 
 I feel like I will never make my way out of the precariat. A simple donation of $1 would make a significant difference and contribute greatly to affording a flat. Thanks in advance for your generosity :bow:
 
-Please, use [**Buy Me a Coffee**](https://www.buymeacoffee.com/dashboard) or [**paypal.me/meonedollarplease**](https://www.paypal.com/paypalme/my/profile)] for donations.
+Please, use [**Buy Me a Coffee**](https://www.buymeacoffee.com/dashboard) or [**paypal.me/meonedollarplease**](https://www.paypal.com/paypalme/my/profile) for donations.
 
 Also, please spread the knowledge about this pledge so more people can help. Here are my social media
 
